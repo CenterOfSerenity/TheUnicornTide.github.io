@@ -15,7 +15,7 @@ There is no cost to attend although donations are welcome.
 
 Lunar guided meditation allows for reclaiming the self by inspiring your inner voice and intuitive mind. Relax as you are taken into a journey of self discovery and transformation. Each lunar meditation is intended to bring us back to center, release and amplify the inner self, connect with the higher self, help us to grow just a little bit more, and gain tools to help in the coming week. This meditation circle is inclusive for all bodies, genders, orientations, and abilities. Each session will last about an hour including time for sharing and discussion.
 
-This meditation circle is hosted by Lexa “Silver Wheel”, a recognized priestess, whose compassion-based practice uses tarot, crystals, astrology, reiki, color energy healing, and draws inspiration from her Panamanian family traditions as well as other traditions. Lexa is a High Priestess, Priestess of South Street Circle, Priestess in the Cabot Tradition and Cabot Kent Hermetic Temple, Community Organizer-Volunteer, Meditation Teacher, Reader, Reiki Attuned, Artist, Writer, and a regular contributor to The Philly Pentacle.
+This meditation circle is hosted by Lexa “Silver Wheel”, a recognized priestess, whose compassion-based practice uses tarot, crystals, astrology, reiki, color energy healing, and draws inspiration from her Panamanian family traditions as well as other traditions. Lexa is a High Priestess, Priestess of South Street Circle, Priestess in the Cabot Tradition and Cabot Kent Hermetic Temple, Community Organizer-Volunteer, Meditation Teacher, Reader, Reiki Certified, Artist, Writer, and a regular contributor to The Philly Pentacle.
 
 ### OCTOBER 17 at 7:00 pm
 
