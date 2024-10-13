@@ -36,6 +36,6 @@ This meditation circle is hosted by Lexa “Silver Wheel”, a recognized priest
 * Waning Moon
 * Fourth Quarter 
 
-{% include ml-form1.html %}
+{% include mailer-lite/ml-form1.html %}
 
 {% include ko-fi/kf-widget.html %}
