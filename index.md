@@ -37,3 +37,5 @@ This meditation circle is hosted by Lexa “Silver Wheel”, a recognized priest
 * Fourth Quarter 
 
 {% include ml-form1.html %}
+
+{% include ko-fi/kf-widget.html %}
